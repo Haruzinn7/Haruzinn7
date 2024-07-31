@@ -14,7 +14,8 @@ Você pode entrar em contato comigo 📫
 
 @alurastartestudante
 
-![]https://c.tenor.com/5zJu_CB5858AAAAC/tenor.gif
+![]![image](https://github.com/user-attachments/assets/07c4ba8b-86cb-4ed8-8cfc-fd4c36a3f039)
+
 
 
 
