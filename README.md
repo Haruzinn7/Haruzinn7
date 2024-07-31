@@ -14,9 +14,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 @haruzin.zs7
 
-![]
-![image](https://github.com/user-attachments/assets/e2de2f33-62cd-4765-b0bb-a9c724cf5422)
-
+![](https://media1.tenor.com/m/5zJu_CB5858AAAAC/mc-hariel-hariel.gif)
 
 
 
