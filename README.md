@@ -14,4 +14,5 @@ Você pode entrar em contato comigo 📫
 
 @alurastartestudante
 
-![]![image](https://github.com/user-attachments/assets/a93ba1a7-6b84-4a95-8655-2a8232804581)
+![]![image](https://github.com/user-attachments/assets/8362dab1-e75f-41bf-9957-e516c7542724)
+
