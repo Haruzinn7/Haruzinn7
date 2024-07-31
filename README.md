@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 
+
 Meu nome é Haruzinn7 ☯
-![]![image](https://github.com/user-attachments/assets/dbda308e-51f8-49ed-8f17-d2482e33b85b)
 
 
 
@@ -13,3 +13,5 @@ Você pode entrar em contato comigo 📫
 
 
 @alurastartestudante
+
+![]![image](https://github.com/user-attachments/assets/a93ba1a7-6b84-4a95-8655-2a8232804581)
