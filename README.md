@@ -1,5 +1,6 @@
 Boas vindas ao meu perfil 
 Meu nome é Haruzinn7 ☯
+
 ![]![image](https://github.com/user-attachments/assets/c47f2887-ebfa-48ef-b622-fddfda6105d6)
 
 
