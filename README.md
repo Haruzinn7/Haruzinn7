@@ -1,11 +1,13 @@
-**☯Boas vindas ao meu perfil ☯**
+                                                                            **☯Boas vindas ao meu perfil ☯**
+
+
 
 Meu nome é Haruzinn7 ☯
 
 ![](https://media1.tenor.com/m/0Hy1SUov3UIAAAAC/mc-hariel-hariel.gif)
 
 
-Estou estudando no Ivo liboni
+Estou estudando na escola Ivo liboni
 
 Estou me desenvolvendo na linguagem JavaScripta
 
